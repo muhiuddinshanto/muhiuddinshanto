@@ -64,7 +64,7 @@ GitHub
 
 ## 📫 Contact Me
 
-* LinkedIn: in/nur-adnan
+* LinkedIn: mohiuddin-shanto
 * GitHub: @muhiuddinshanto
 
 
